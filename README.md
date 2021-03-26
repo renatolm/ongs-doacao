@@ -7,7 +7,7 @@ Brasil: https://github.com/renatolm/ongs-doacao/blob/main/Brasil.md
 
 Norte: https://github.com/renatolm/ongs-doacao/blob/main/Norte.md
 
-Nordeste: 
+Nordeste: https://github.com/renatolm/ongs-doacao/blob/main/Nordeste.md
 
 Centro-Oeste:
 
