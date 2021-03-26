@@ -31,3 +31,18 @@ amorerifinanceiro@gmail.com<br>
 www.respiraxingu.com.br<br>
 <br>
 <br>
+<h2>#AsasDaEmergência - Greenpeace - Amazonas, Pará, Roraima, Rondônia e Acre</h2><br>
+O projeto leva água, materiais de limpeza e higiene, equipamentos médicos, concentradores e cilindros de oxigênio, entre outros produtos, a dezenas de comunidades indígenas nesses estados, incluindo para áreas mais remotas, de difícil acesso. Dentre os parceiros, estão a Federação das Organizações Indígenas do Rio Negro (Foirn), a Coordenação das Organizações Indígenas da Amazônia Brasileira (Coiab), Amazon Watch e os Expedicionários da Saúde (EDS). Ações específicas estão sendo realizadas também com o Projeto Entrega, SOS AM, Instituto Socioambiental (ISA), Instituto de Conservação e Desenvolvimento Sustentável da Amazônia (Idesam), Aliança Covid-Amazonas, que reúne uma série de instituições e é liderada pela Fundação Amazônia Sustentável (FAS), Respira Amazonas e União Amazônia Viva. Doe a partir de R$ 39 pelo site: <a href="http://doe.greenpeace.org.br/guardioes-da-amazonia/">doe.greenpeace.org.br/guardioes-da-amazonia</a> <br>
+<br>
+<br>
+<h2>Rio Negro, Nós Cuidamos! - Federação das Organizações Indígenas do Rio Negro</h2><br>
+A organização atua na promoção de saúde, direito à informação e segurança alimentar para os 23 povos indígenas do rio Negro, Amazonas, cerca de 750 comunidades em terras demarcadas. A campanha vai adquirir e distribuir sabão, água sanitária, álcool gel, combustível, ferramentas de atividades agrícolas, kits de pesca, alimentos não perecíveis, como também serviços de comunicação e informação da Rede de Comunicadores Indígenas do Rio Negro (Rede Wayuri): produção e impressão de materiais informativos, serviços de carro de som para zonas periurbanas de São Gabriel da Cachoeira, compra de 5 aparelhos de radiofonia, produção de áudios informativos nas línguas indígenas.<br>
+Doe por Paypal pelo <a href="http://www.paypal.com/donate/?hosted_button_id=32L9MZZANVMV8&Z3JncnB0=">link</a> ou depósito bancário:<br>
+Fundo FOIRN - Banco do Brasil<br>
+Agência 1136-3 <br>
+Conta Corrente: 17563-3<br>
+Cnpj: 05.543.350/0001-18<br>
+Código SWIFT: BRASBRRJBHE<br>
+<a href="http://noscuidamos.foirn.org.br/">noscuidamos.foirn.org.br</a><br>
+<br>
+<br>
