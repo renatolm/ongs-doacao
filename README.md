@@ -9,7 +9,7 @@ Norte: https://github.com/renatolm/ongs-doacao/blob/main/Norte.md
 
 Nordeste: https://github.com/renatolm/ongs-doacao/blob/main/Nordeste.md
 
-Centro-Oeste:
+Centro-Oeste: https://github.com/renatolm/ongs-doacao/blob/main/Centro-Oeste.md
 
 Sudeste: 
 
