@@ -11,7 +11,7 @@ Nordeste: https://github.com/renatolm/ongs-doacao/blob/main/Nordeste.md
 
 Centro-Oeste: https://github.com/renatolm/ongs-doacao/blob/main/Centro-Oeste.md
 
-Sudeste: 
+Sudeste: https://github.com/renatolm/ongs-doacao/blob/main/Sudeste.md
 
 Sul:
 
