@@ -13,6 +13,6 @@ Centro-Oeste: https://github.com/renatolm/ongs-doacao/blob/main/Centro-Oeste.md
 
 Sudeste: https://github.com/renatolm/ongs-doacao/blob/main/Sudeste.md
 
-Sul:
+Sul: https://github.com/renatolm/ongs-doacao/blob/main/Sul.md
 
 Unicamp: https://github.com/renatolm/ongs-doacao/blob/main/Unicamp.md
