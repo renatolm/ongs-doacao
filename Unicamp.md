@@ -14,3 +14,7 @@ Paralelo às ações acima, estamos atuando, também, com doações de equipamen
 para alunos em situação de Vulnerabilidade Social de TODA a Unicamp.<br>
 Participe doando o seu notebook/tablet usado e ajude os alunos da Unicamp.<br>
 Faça o cadastro em: https://forms.gle/jJhcW24TnkJon95J7 <br>
+<br>
+<br>
+<h2>Ajude Unicamp</h2><br>
+https://ajude.unicamp.br/ <br>
