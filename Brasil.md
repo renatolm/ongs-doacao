@@ -66,3 +66,17 @@ CC 500.537-x (trocar por o x por zero se for de outro banco) <br>
 Itaú <br> 
 Ag 0417 <br>
 CC 65638-6 <br>
+<br>
+<br>
+<h2>Panela Cheia Salva</h2><br>
+Diante desta situação de calamidade, a CUFA, a Gerando Falcões e a Frente Nacional Antirracista, com o apoio do União SP e cooperação da Unesco, uniram esforços para criar o Movimento Panela Cheia em busca de arrecadar recursos para a compra de cestas básicas para pessoas em situação de vulnerabilidade.<br>
+Estas instituições lutam todos os dias contra a dura realidade da fome e trabalham seriamente para fazer chegar alimentos onde se mais precisa: nas mesas de famílias em comunidades de todo país.<br>
+Vivemos um dos momentos mais delicados da nossa história.<br>
+
+Os efeitos da pandemia são extremamente graves e urgentes em todo o país e atingem, principalmente, aqueles mais vulneráveis.<br>
+
+Ao longo da pandemia, 8 em cada 10 famílias das favelas não teriam se alimentado se não tivessem recebido doações. Um número assustador, mas real.<br>
+
+A fome mata. Panela cheia salva. Junte-se a nós e ajude a salvar milhões de pessoas.<br>
+<br>
+https://www.panelacheiasalva.com.br
