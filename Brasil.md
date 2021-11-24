@@ -80,3 +80,8 @@ Ao longo da pandemia, 8 em cada 10 famílias das favelas não teriam se alimenta
 A fome mata. Panela cheia salva. Junte-se a nós e ajude a salvar milhões de pessoas.<br>
 <br>
 https://www.panelacheiasalva.com.br
+<br>
+<br>
+<h2>Good Donor</h2><br>
+"Marketplace" de doações.<br>
+https://www.gooddonor.com.br <br>
